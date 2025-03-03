@@ -1,5 +1,5 @@
 
-# 💻 ¡Hola! Soy Romina 😊  
+# 💻 ¡Hola! Soy Romina 
 
 📚 **Estudiante de Ingeniería de Sistemas** en la **Universidad Nacional de San Agustín**  
 🌎 Desde **Arequipa, Perú**  | 🌎 Arequipa, Perú  
